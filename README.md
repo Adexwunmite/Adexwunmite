@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Adexwunmite
-- 👀 I’m interested in data analysis and cybersecurity 
+- 👀 I’m interested in data analysis, crm , retention management and cybersecurity
 - 🌱 I’m currently learning to use more tools on cybersecurity 
 - 💞️ I’m looking to collaborate on projects that involves money lol
 - 📫 How to reach me ... ajijolaadewunmi@yahoo.com , Adexwunmite on all social media platform. 
